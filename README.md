@@ -10,7 +10,7 @@
 | :--- | :--- | :--- | :--- |
 | **钦灵** | 无!!! | — | N/A |
 | **uwa.uwa** | 有 | 2 | LingChat_photos/uwa |
-| **罗伊** | 有 | — | N/A |
+| **罗伊** | 有 | 6 | 森罗幻想[点击跳转](https://blog.roysgensokyo.space/cosplay.html) |
 | **待补充** | N/A | N/A | N/A |
 
 ## 📜 许可证
